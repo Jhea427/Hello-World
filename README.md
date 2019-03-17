@@ -1,3 +1,3 @@
 # Hello-World
 Repository-
-New to this field of work. Find it intersting due to the level of challange and ablility to be creative. 
+New to this field of work. Challanging to say the least, it is rewarding to have the ablility to be creative. 
